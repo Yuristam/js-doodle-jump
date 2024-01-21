@@ -4,4 +4,4 @@
 
 **❤Big Thanks to Ania Kubów for this tutorial❤**
 
-Link to the video on YouTube: https://youtu.be/dgUGTGEdVSk?si=ZTeI18Z4QFr3ZlsZ
+Link to the original video on YouTube: https://youtu.be/dgUGTGEdVSk?si=ZTeI18Z4QFr3ZlsZ
